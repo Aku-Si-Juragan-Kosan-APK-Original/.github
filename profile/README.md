@@ -4,7 +4,12 @@
 
 <p><strong>What is Aku Si Juragan Kosan APK and Why You Should Play It</strong></p>
 
-<p>Aku Si Juragan Kosan APK is an engaging management game where you step into the shoes of a savvy landlord running a boarding house. In this game, you&rsquo;ll build, manage, and grow your business while dealing with tenants, challenges, and opportunities. It combines strategic planning with fun and interactive gameplay, making it a perfect pick for players who enjoy simulation and management games.</p>
+<p>Aku Si Juragan Kosan APK is an engaging management game where you step into the shoes of a savvy landlord running a boarding house. In this game, you&rsquo;ll build, manage, and grow your business while dealing with tenants, challenges, and opportunities.
+	
+![photo_2024-11-25_23-50-24](https://github.com/user-attachments/assets/17c1385a-b1aa-496f-b8eb-1a9fde72537c)
+
+ 
+ It combines strategic planning with fun and interactive gameplay, making it a perfect pick for players who enjoy simulation and management games.</p>
 
 <table>
 	<thead>
